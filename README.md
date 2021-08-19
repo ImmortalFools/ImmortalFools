@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ImmortalFools
+- 👀 I’m interested in the art of deception
+- 🌱 I’m currently learning how to break and enter
+- 📫 How to reach me: die
